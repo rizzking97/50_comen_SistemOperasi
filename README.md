@@ -1,4 +1,4 @@
-![WhatsApp Image 2025-02-12 at 08 44 55_39732d3e](https://github.com/user-attachments/assets/43b1cc14-f8ea-4b0a-ba6c-70e8ce6e73ae)Nama : Rizko Fahrezy
+Nama : Rizko Fahrezy
 
 NIM : 09030582327094
 
